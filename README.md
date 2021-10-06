@@ -37,6 +37,6 @@ Rathnavali Balika Vidyalaya, Gampaha GCE ADVANCED LEVEL EXAMINATION (2020)
 
 [Resume]  (file:///G:/INFORMATION%20TECHNOLOGY/ASSIGNMENT/HS21932120_V.Savindie%20Ranatunga.pdf).
 
-# Cantact Details
+# Contact Details
 * Address: NO:412/6/1, Pahala Imbulgoda, Imbulgoda, Sri Lanka
 * Email ID: hs21932120@my.sliit.lk
