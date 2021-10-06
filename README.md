@@ -11,9 +11,9 @@ Holy Cross College, Gampaha GCE ORDINERY LEVEL EXAMINATION (2015)
 * 9 A ‘S in all subject
 
 Rathnavali Balika Vidyalaya, Gampaha GCE ADVANCED LEVEL EXAMINATION (2020)
-* Biology B
-* Chemistry B
-* Physics B
+* Biology C
+* Chemistry C
+* Physics S
 
  Sri Lanka Institute of Information Technology (SLIIT), Malabe
  * Undergraduate BSc (Hons) in Biotechnology
