@@ -4,7 +4,7 @@ study in various aspects, where ever the chance is there. I want to become a res
 professional personal, in the country. I want to help all poor people, those who wants our 
 support. Also, my goal is to go for a new innovation find medicines through researches.
 
-![]
+![](https://github.com/savindie1018/image-my/blob/main/Savindie%20image.png)
 
 # Educational Qualifications 
 Holy Cross College, Gampaha GCE ORDINERY LEVEL EXAMINATION (2015)
